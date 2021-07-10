@@ -1,6 +1,0 @@
-# Livro de Receitas :
-
-
-
-
-
